@@ -1,1 +1,1 @@
-# Lalitha-Sai-Lasya-Priya_bitsom_ba_2511969_tableau_dashboard
+# lalithasailasyapriya_bitsom_ba_2511969_tableau_dashboard
